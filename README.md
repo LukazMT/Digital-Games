@@ -8,5 +8,5 @@
 
 Em resumo o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Aos nos dedicarmos ao aprendizado contínuo, estamos investindo em nosso próprio futuro
 
-(![image](https://github.com/LukazMT/Digital-Games/assets/125468798/135ca1ab-2083-4b35-bed1-3800701e877a)
+![image](https://github.com/LukazMT/Digital-Games/assets/125468798/135ca1ab-2083-4b35-bed1-3800701e877a)
 
