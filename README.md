@@ -22,4 +22,4 @@ Em resumo o estudo é um investimento valioso que pode melhorar significativamen
 
 $\sqrt25$
 
-$\sqrt36$ = 6
+$\sqrt36=6$
