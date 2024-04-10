@@ -10,5 +10,5 @@ Em resumo o estudo é um investimento valioso que pode melhorar significativamen
 
 ![](https://tenor.com/pt-BR/view/gato-pato-cuticuti-lucas-cini-lobotomia-gif-3686397967126460950.gif)
 
-![](https://tenor.com/pt-BR/view/cat-gif-6997856904020830598.gif)
+![](https://media1.tenor.com/m/YR1hxyktKYYAAAAC/cat.gif)
 
