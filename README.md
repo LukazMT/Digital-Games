@@ -23,3 +23,5 @@ Em resumo o estudo é um investimento valioso que pode melhorar significativamen
 $\sqrt25$
 
 $\sqrt36=6$
+
+$\sqrt3x+8-1$
