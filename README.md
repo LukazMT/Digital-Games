@@ -12,5 +12,5 @@ Em resumo o estudo é um investimento valioso que pode melhorar significativamen
 
 ![](https://media1.tenor.com/m/YR1hxyktKYYAAAAC/cat.gif)
 
-![](https://tenor.com/pt-BR/view/cat-kitten-fight-gif-10639080953130088760.gif)
+![](https://media1.tenor.com/m/k6WbwjPxeTgAAAAC/cat-kitten.gif)
 
