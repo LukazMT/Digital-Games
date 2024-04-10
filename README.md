@@ -14,3 +14,10 @@ Em resumo o estudo é um investimento valioso que pode melhorar significativamen
 
 ![](https://media1.tenor.com/m/k6WbwjPxeTgAAAAC/cat-kitten.gif)
 
+
+
+
+
+**Comando de Formula**
+
+$\sqrt25$
