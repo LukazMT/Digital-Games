@@ -21,3 +21,5 @@ Em resumo o estudo é um investimento valioso que pode melhorar significativamen
 **Comando de Formula**
 
 $\sqrt25$
+
+$\sqrt36$ = 6
