@@ -8,5 +8,5 @@
 
 Em resumo o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Aos nos dedicarmos ao aprendizado contínuo, estamos investindo em nosso próprio futuro
 
-![[aaa](https://tenor.com/pt-BR/view/gato-pato-cuticuti-lucas-cini-lobotomia-gif-3686397967126460950)](https://tenor.com/pt-BR/view/gato-pato-cuticuti-lucas-cini-lobotomia-gif-3686397967126460950)
+![](https://tenor.com/pt-BR/view/gato-pato-cuticuti-lucas-cini-lobotomia-gif-3686397967126460950)
 
